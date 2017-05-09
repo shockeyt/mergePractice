@@ -1,3 +1,6 @@
 # mergePractice
+# COOl FEATURE 
 
-# some kewl commentz
+# some keeeewwl commentz!! lolz!
+
+# I like to toe touch on the weekends.
